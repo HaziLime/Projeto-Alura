@@ -6,4 +6,8 @@ Meu nome é HaziLimão mas o mundo me entitulou de Pedro Henrique Costa Asturian
 
 * Metade do tempo ouvindo música, a outra metade estou jogando, e numa pequena porcentagem estarei jogando RPG.
 
-* TDAH e Autismo não diagnosticado :D 
+* TDAH e Autismo não diagnosticado :D
+
+* Sou muito ativo na minha conta do twitter.com ( intitulado de X pelo Elon Musk mas ninguém chama assim ) e no Discord, mandando pedido de amizade para a conta hazilime e falar que veio do github ( não sei porque você viria conversar comigo por causa da minha conta do github mas tamo junto )
+
+
